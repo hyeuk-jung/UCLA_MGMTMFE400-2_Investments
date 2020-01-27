@@ -1,1 +1,1 @@
-# MGMTMFE400-2_Investments
+# UCLA MGMTMFE400 Investments
